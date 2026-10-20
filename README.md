@@ -1,3 +1,3 @@
-# Hi 👋, Saya Nur Ilyana!
+# Hi 👋, Saya Nur Ilyana
 
 
